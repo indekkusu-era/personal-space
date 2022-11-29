@@ -26,6 +26,8 @@ To be honest, the 3 original compositions from this tournament were out of our e
 
 These epic compositions wouldn't be what they are without the background artworks, countless thanks into the artists for the artwork and graphics for this tournament. The artists were doing an unimaginable work for a humankind. Appreciate you all a lot.
 
+Really really special thanks to TheFunk, for enhancing this showcase further to the next level by pulling out the videos for the custom tracks and the Grand Finals tiebreaker. I truly appreciate your work and your sudden idea putting in this.
+
 Lastly, thank you Polytetral for supporting us in the mappool selection scene all the time. I am pretty sure that the last week was really tough for you as you were approaching the finals week, and you needed to do all the graphics for the fascinating Grand Finals Mappool Showcase. I appreciated you so much from the bottom of my heart. Thank you so much for giving us opportunities, and making these all happen.
 
 Well, as much as my memories went, I couldn't include all of people who involved in this, but... you know who you are and I love you all. Continue doing what you are passionate with and I hope to see you all, and this community success. Thank you for joining this journey with us.
