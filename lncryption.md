@@ -16,7 +16,7 @@ The character looked back at themselves and found the freedom of being emotionle
 
 ## o!mLN3 Afterthoughts
 
-At last, it was the end of my work in osu!mania LN Tournament 3. With not less than 14 custom maps/collabs, 1 composition, 1 collab storyboard various testplays and replays. I am surely happy that everyone, including me enjoyed my work on this tournament. I was truly speechless when the Grand Finals mappool showcase was finished. It was truly a lot of effort the host and the staff team who involved in this tournament pulled out.
+At last, it was the end of my work in osu!mania LN Tournament 3. With not less than 14 custom maps/collabs, 1 composition, 1 collab storyboard and various testplays and replays. I am surely happy that everyone, including me enjoyed my work on this tournament. I was truly speechless when the Grand Finals mappool showcase was finished. It was truly a lot of effort the host and the staff team who involved in this tournament pulled out.
 
 To be honest, this contribution was for the entire community and myself, which means I was really enjoying this work as the staff team are encouraging each other to create the tremendous amount of contribution into this tournament.
 
